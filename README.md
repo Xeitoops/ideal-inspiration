@@ -1,0 +1,2 @@
+# ideal-inspiration
+None.
